@@ -43,4 +43,4 @@
 享受最纯粹的观看体验
 我们平台专注为您提供高清、无码、无修正的日本AV影片，保证每一部作品都是最真实、最纯粹的观看体验。不需要支付任何费用，您就能享受这些精彩影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/634445 ）</span>
